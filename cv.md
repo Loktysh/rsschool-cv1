@@ -1,5 +1,5 @@
 * Name: Alexander Loktysh
-* Contacts: https://t.me/Euphorialick
+* Contacts: [My Telegram](https://t.me/Euphorialick).
 * About me: I want to pay bills.
 * It skills: none.
 
